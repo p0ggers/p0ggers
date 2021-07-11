@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @p0ggers
+- 👀 I’m interested in game design, simple art mainly!
+- 🌱 I’m currently learning coding and art :]
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me sabrinaheart@icloud.com
+- 😏 Anything anime please sign me up
